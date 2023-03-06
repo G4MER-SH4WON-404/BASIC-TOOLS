@@ -1,4 +1,5 @@
 TERMUX-SETUP-COMMAND💚🌸
 
-https://github.com/MRVIVEK-CODER/Decompiler/raw/main/106824690-8dd73a00-66ad-11eb-89e2-53e13ac6f594.gif
+https://user-images.githubusercontent.com/79738922/150628863-e161ecb3-06fe-4656-be20-9122ed533309.gif
+
 TERMUX-SETUP FREE TOOLS FAST SETUP ALL PACKAGES .
